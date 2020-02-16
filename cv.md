@@ -5,7 +5,7 @@
     + litvinov.yuriy1996@gmail.com, litvinov_yuriy@inbox.ru
     + litvinov.yuriy.1996(Skype)
     + +7 (950) 178 58 02 (Vider, WhatsApp)
-    + @LYurkaA(Telegram)
+    + [Telegram profile](https://t-do.ru/LYurkaA)
 3. Link hh.ru [resume](https://izhevsk.hh.ru/resume/7858164cff0445f86e0039ed1f46747a504c36)
 4. My skills
     + Html(Pug)
